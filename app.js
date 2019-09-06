@@ -1,1 +1,1 @@
-golds 中国加油
+golds 
